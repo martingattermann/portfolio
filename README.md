@@ -1,4 +1,4 @@
-# Assocsiate Architect
+# Assossiate Architect
 
 ### Work Experience
 
